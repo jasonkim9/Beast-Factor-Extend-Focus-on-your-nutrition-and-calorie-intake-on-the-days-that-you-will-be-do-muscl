@@ -1,0 +1,2 @@
+# Beast-Factor-Extend-Focus-on-your-nutrition-and-calorie-intake-on-the-days-that-you-will-be-do-muscl
+Beast Factor Extend Focus on your nutrition and calorie intake on the days that you will be do muscle building exercises. Consume protein and other calories the hour before exercising. This does not mean that you should eat too much, but eat more than you would on a day that you would not work out.   Read More >>>  http://www.supplementsdeal.com/beast-factor-extend/ 
